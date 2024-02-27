@@ -1,1 +1,1 @@
-Research for potential guest blog post
+Research for potential blog post
