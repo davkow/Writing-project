@@ -1,1 +1,1 @@
-Research for potential blog post
+Research
